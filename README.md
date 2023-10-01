@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Aramispogi
+- 👀 I’m interested in hacking
+- 🌱 I’m currently learning on codeing
